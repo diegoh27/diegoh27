@@ -3,7 +3,7 @@
 <h1 align="center">Hi 👋, I'm Diego Horesok</h1>
 <h3 align="center">A passionate fullStack developer from Venezuela</h3>
 
-- 📫 How to reach me **diegolancer27@gmail.com**
+- 📫 How to reach me **diegolancer27@gmail.com** **+58 4128541945**
 
 - 📄 Know about me Since I was a child I always had a fondness for technology, I adopted the computer as a good useful and faithful tool, even a helping hand to extend all kinds of knowledge and interpersonal relationships, but consider that direct and real communication will always be the most important to achieve greater empathy, connection and understanding; My main ideal is to continue evolving, innovating, improving and learning from technology but without losing track of who we are as human beings.
 
