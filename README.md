@@ -5,8 +5,8 @@
 
 - 📫 How to reach me **diegolancer27@gmail.com**
 
-- 📄 Know about me [Since I was a child I always had a fondness for technology, I adopted the computer as a good useful and faithful tool, even a helping hand to extend all kinds of knowledge and interpersonal relationships, but consider that direct and real communication will always be the most important to achieve greater empathy, connection and understanding; My main ideal is to continue evolving, innovating, improving and learning from technology but without losing track of who we are as human beings.](Since I was a child I always had a fondness for technology, I adopted the computer as a good useful and faithful tool, even a helping hand to extend all kinds of knowledge and interpersonal relationships, but consider that direct and real communication will always be the most important to achieve greater empathy, connection and understanding; My main ideal is to continue evolving, innovating, improving and learning from technology but without losing track of who we are as human beings.)
-
+- 📄 Know about me Since I was a child I always had a fondness for technology, I adopted the computer as a good useful and faithful tool, even a helping hand to extend all kinds of knowledge and interpersonal relationships, but consider that direct and real communication will always be the most important to achieve greater empathy, connection and understanding; My main ideal is to continue evolving, innovating, improving and learning from technology but without losing track of who we are as human beings.
+- 
 - ⚡ Fun fact **I have a great sense of humor and I really appreciate the meaning of friendship.**
 
 <h3 align="left">Connect with me:</h3>
